@@ -1,4 +1,3 @@
-Discord : https://discord.gg/QW4TDJP
 
 Vidéo : https://youtu.be/6Es49dEvLdw
 
